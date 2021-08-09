@@ -1,2 +1,4 @@
 # SchoolPhysicals
 School Physicals  https://integrityhealthforwellness.com/school-physicals/  As part of our array of annual and semi-annual physicals, we provide school physicals for kids and teens ready for another year of learning!   Doctors recommend having a physical every annually for children over five years old.  Many states and counties require a physical to attend school. This is to ensure your child and all other students are up-to-date on vaccines and shots, as well as safeguarding against any health related issues that may arise during the school year.  For the vaccination guidelines for Guilford County Schools, click here.   Integrity Health for Wellness 1919-A Boulevard Street Greensboro, NC 27407 (336) 763-0203
+[linkfordasitemannoitsih4wellcomdot](https://integrityhealthforwellness.com/school-physicals/)
+
